@@ -1,4 +1,4 @@
-# <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="30px"> Lean Alvarez (she/her)
+# <img src="https://gph.is/g/ZkNqgLP" width="30px"> Lean Alvarez (she/her)
 - 📍  University of California, Davis
 - 📚  **Major:** Neurobiology, Physiology, and Behavior
 - 📧  **Email:** [alvarezleanph@gmail.com](mailto:alvarezleanph@gmail.com)
